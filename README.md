@@ -63,5 +63,5 @@ Different tools:
 To learn anything, through online courses:
 - Official site for any course to study or to get the skill: https://www.udemy.com
 - For direct download of any course: https://downloadlynet.ir 
-- The 2nd method of downloading, the torrent way: https://fcsnew.net
+- The 2nd method of downloading, the torrent way: https://fcsnew.net or https://tut4it.com/ 
 - For torrent way of downloading the course: Just search "how to in torrent way"
